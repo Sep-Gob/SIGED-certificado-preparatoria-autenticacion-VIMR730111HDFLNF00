@@ -1,0 +1,2 @@
+# SIGED-certificado-preparatoria-autenticacion-VIMR730111HDFLNF00
+VIMR730111HDFLNF00
